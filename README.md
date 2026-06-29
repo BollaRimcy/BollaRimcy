@@ -1,6 +1,6 @@
 Hi there, I'm Rimcy Bolla! 👋
 
-🎓 B.Tech in Information Technology | Aditya College of Engineering | CGPA: 8.02
+🎓 B.Tech in Information Technology | Aditya College of Engineering and Technology | CGPA: 8.02
 
 📍 Andhra Pradesh, India
 
